@@ -1,2 +1,3 @@
 # IETI-CHAKRAUI
 
+![image](https://github.com/ELS4NTA/IETI-CHAKRAUI/assets/99996670/a52296e7-9673-490b-95e2-48494ba89593)
